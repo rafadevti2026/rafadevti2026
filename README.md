@@ -19,4 +19,4 @@
 
 ## Contato
 
-LinkedIn: em breve
+LinkedIn: (https://www.linkedin.com/in/rafaela-constancio-635a98317/)
